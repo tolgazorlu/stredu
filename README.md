@@ -1,0 +1,2 @@
+# stredu
+# stredu
